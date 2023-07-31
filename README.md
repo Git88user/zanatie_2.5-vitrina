@@ -1,0 +1,1 @@
+# zanatie_2.5-vitrina
